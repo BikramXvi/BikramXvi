@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BikramXvi
+- 👀 I’m interested in AI and ML
+- 🌱 I’m currently learning AI and ML
+- 💞️ I’m looking to collaborate on some Projects
+- 📫 How to reach me ---> createbikram@gmail.com , +977 9766562005 , instagram: 
